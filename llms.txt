@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي خذني إليك
+> روحي وعمري بين يديك
+> نار الشوق في قلبي تزيد
+> حبك في دمي كالوريد
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
